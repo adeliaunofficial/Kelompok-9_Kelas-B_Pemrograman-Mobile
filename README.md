@@ -4,3 +4,4 @@
 1. Adelia Fachrani 1 - D121241020 - @adeliaunofficial (Ketua/Pembuat Repo)
 2. Andi Muh. Daffa Dermawan 2 - D121241088 - @dafwann
 3. Gabriel Imanuel Kole 3 - D121241065 - @nonzero6
+4. Intan 4 - D1121241086 - 
